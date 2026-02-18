@@ -1,3 +1,3 @@
 # home-planner
 
-#link : https://drive.google.com/file/d/1mwOI6V1332-JJk7-dRCqcUervZCcvHKc/view?usp=sharing
+#link : https://drive.google.com/drive/folders/1TYOdh2yPi7n8NWUbqRyZGudKrS8x0-wq?usp=sharing
